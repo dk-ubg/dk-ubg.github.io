@@ -1,2 +1,2 @@
 # DK PROFILE
-Website for more informatiob
+Website for more informaation and maybe G@M3$
